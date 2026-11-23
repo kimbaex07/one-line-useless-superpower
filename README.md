@@ -8,7 +8,11 @@ My entry for the [One Line, Zero Use: The Useless Superpower Sprint](https://mak
 
 > I can see five seconds into the future, which is exactly long enough to watch myself trip over nothing.
 
-Five seconds of foresight sounds like a gift right up until you realise what it actually buys you: a front-row seat to your own humiliation, with just enough warning to feel it coming and not nearly enough time to do anything about it. No lottery numbers, no dodged disasters — just a crystal-clear preview of you, the floor, and gravity doing its thing. Gloriously, completely useless.
+The pitch is simple: a superpower that sounds impressive for about half a second — until you do the math. Seeing five seconds ahead means you never get to change anything, only to witness it in advance, like a spoiler for the least exciting movie ever made: your own afternoon. You know the stumble is coming, you know exactly which pebble is responsible, and you know that by the time the vision ends, your body has already committed to the fall. It is foresight with the foresight removed — all of the dread, none of the power.
+
+## Why it's gloriously useless
+
+Five seconds is too short to stop a disaster and too long to ignore one, so every warning arrives as a polite little preview of embarrassment you can't avoid. The punchline is the timing itself: the power gives you just enough of a head start to watch yourself trip in slow motion, narrated live by your own brain, and absolutely no time to step aside. That's the whole joke — a superpower that only makes falling over more humiliating, because now you saw it coming and tripped anyway.
 
 ## Run it
 
